@@ -8,6 +8,6 @@
 
  - I'm just a self-taught guy, who's trying to achieve smth in codding)) 
 
- - I really wanna find someone to practice or create a ambitious project!
+ - I really wanna find someone to practice or create a ambitious project! :pray:
 
- - And I wanna get a ✨job✨...
+ - And I wanna get a ✨job✨... :point_right::point_left:
