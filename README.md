@@ -1,4 +1,4 @@
-### &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;:v:SUP! This's my own page of curse & cringe)):v:
+### &emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;&emsp;SUP! This's my own page of curse & cringe))
 
 <!--
 **TrueLubimec/TrueLubimec** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
